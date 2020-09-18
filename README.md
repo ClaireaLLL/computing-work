@@ -1,3 +1,3 @@
 # I'm Claire
 I was born at a very young age.  
-I'm reaLLL
+if anyone wants to edit my storyboard feel free to edit the "revenge" one only 
