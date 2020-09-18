@@ -3,7 +3,7 @@ The Masqueraded Truth
   Lilth couldn't remember much. She lay on her bed, watching the servents find her a perfect dress whilst thinking long and hard. Her life has never been the fantasies she have ever known. *I never knew all these fantasies would get me depressed*, she thought. The party was an hour away. She had to find out before then.
   "Lilth! The limousine's here." 
   
-  Her white gown ran down her knees, with a bow securing her belt in place. The blonde teen looked around, desperately trying to look for clues. Just then, a young man ever so charming carelessly spilled a glass of wine right smack on her gown.
+  Her white satin gown ran down her knees, with a bow securing her belt in place. The blonde teen looked around, desperately trying to look for clues. Just then, a young man ever so charming carelessly spilled a glass of wine right smack on her gown.
   "Oh... my apologies, I'll help clean that up,"
   "Don't fret, I've brought an extra dress!" Lilth's mom stepped in between the two.
   "I'll escort you to the ladies'," the mysterious man offered.
@@ -39,8 +39,19 @@ The Masqueraded Truth
   "What. Did you see. Just now?" Zion began shaking her violently, demanding for the answers. 
   *What's his problem?* Lilth started to question.
   "I don't remember a thing... but what was that image in my head just now? Was that... death?"
-  "Good job Lilth, that's a good girl." Zion nodded his head and pulled Lilth into a tight embrace. "Good, you've done well..." Zion's mellow voice trailed off as Lilth went into his arms. She  
+  "Good job Lilth, that's a good girl." Zion nodded and pulled Lilth into a tight embrace. "Good job, you've done well..." Zion's mellow voice trailed off as Lilth fell into his arms in a daze.
+  
+  "AHHHHHHH where the heck am I?" Lilth sprang out of bed. 
+  "AHHHHHHH this isn't my room..." 
+  "AHHHHHHH Who's clothes am I in?!" 
+  "Ugh, could you shut up?" A teenage girl around her age broke into her room. 
+  "I'm really sorry, uh..." Lilth got off the bed and approached her.
+  "Don't touch me! UUUeegH! (Very strange screech) My makeup's fresh!"
+  "I-"
+  "What? Why are you looking at me like this? Oh, ya jealous?" The trying girl twirlled her fringe around her finger, making pityful faces at Lilth.
+  Flustter
+  
  
   
-  (DONT EDIT MY STORY NORMIES LET ME WRITE THE WHOLE THING) >:(=
+  (DONT EDIT MY STORY LET ME WRITE THE WHOLE THING) >:(=
   (And also this story is in Lilth's perspective and the dude is just an ass AND IM MAKING THIS AN EDGY STORY)
