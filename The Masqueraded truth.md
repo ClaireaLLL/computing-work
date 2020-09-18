@@ -1,6 +1,6 @@
 The Masqueraded Truth
   
-  Lilth couldn't remember much. She lay on her bed, watching the servents find her a perfect dress whilst thinking long and hard. Her life has never been the fantasies she have ever known. *I never knew all these fantasies would get me depressed*, she thought. The party was an hour away. She had to find out before then.
+  Lilth couldn't remember much. She lay on her bed, watching the servents find her a perfect dress whilst thinking long and hard. Even though she was rich, her life has never been the fantasies she has ever known. At least, the fantasies she has envisioned. *I never knew all these fantasies would get me depressed*, she thought. The party was an hour away. She had to find out before then.
   "Lilth! The limousine's here." 
   
   Her white satin gown ran down her knees, with a bow securing her belt in place. The blonde teen looked around, desperately trying to look for clues. Just then, a young man ever so charming carelessly spilled a glass of wine right smack on her gown.
@@ -49,9 +49,32 @@ The Masqueraded Truth
   "Don't touch me! UUUeegH! (Very strange screech) My makeup's fresh!"
   "I-"
   "What? Why are you looking at me like this? Oh, ya jealous?" The trying girl twirlled her fringe around her finger, making pityful faces at Lilth.
-  Flustter
+  Lilth was outraged.
+  "Why do you care, b_tch?"
+  "Oh, you called me a b_tch? HA, yea that's clever, I'm a B_TCH! HAHAHAHAHAHA..."
   
- 
+  "Just LEAVE HER ALONE!" A slender boy stepped foot into Lilth's bedroom. Before anyone could react, icicles grew from the ceiling, wrapping around the bully's neck, arms and legs. 
+  "AAAAAAAAAAAAUGHHHHH!!!!!!" She screamed at the top of her lungs, while Lilth watched in amusement as the suffocating girl's face turned purple, then red, then white.
+  "Don't worry about Siera," Zion came in and put his arm around Lilth's shoulders.
+  "She's really a pain in the a**," he lamented. 
+  Lilth remained silent.
+  "What's wrong sweetie?"
+  "Uh... Zion, don't you think... that's a bit too much for Siera?" Lilth's amusement turned into horror. 
+  "Are your memories recovering, Lilth?" asked Zion as he changed the subject. 
+  *They are, actually.* Thought Lilth. She started remembering the pain she has gone through trying to stand the brat.
+  She nodded. 
+  "Good," said Zion, "I'm bringing you to go meet the king."
+  Lilth nodded sadly, whispering a soft apology to Siera's motionless body lying on the floor.
+  
+  Zion paced his steps and stood merely an inch apart from Lilth. She felt a little uncomfortable, of course. *But he's trying his best for me,* Lilth thought.
+  Lilth was escorted to a great big ceremonial hall. There, she found the entrance to the throne. 
+  "I'll wait here for you," Zion nodded. 
+  Lilth took a deep breath. She looked down and stared at her leathered training attire, completed with a pre-tied scarf around her neck. She knew what was coming. 
+  Performing a small curtsey, king Adiona gave a wide and cheery smile. To Lilth, it was... somewhat more genuine than Zion's. She liked it. 
+  "My saviour," king Adiona acknowledged the curtsey. 
+  
+  
+  
   
   (DONT EDIT MY STORY LET ME WRITE THE WHOLE THING) >:(=
-  (And also this story is in Lilth's perspective and the dude is just an ass AND IM MAKING THIS AN EDGY STORY)
+  (And also this story is in Lilth's perspective and the dude is an a** AND IM MAKING THIS AN EDGY STORY)
