@@ -13,6 +13,17 @@ The Masqueraded Truth
   "Oh that's nice... I'm-"
   "Lilth, right? Lilth." Zion interrupted.
   "Y-you know me?" 
+  "Why wouldn't I?"
+  "I-I'll go change first."
+  
+  "Wait! Before that..." Zion exclaimed, grabbing her wrist,"Would you please follow me, Lilth?"
+  *What does he want from me?!* Lilth thought. She found herself at a loss, the only time she wished her mother was with her.
+  "I can help you look for clues, " He calmly replied.
+  That was all Lilth needed to know. 
+  "I'll go with you."
+  Zion eased his grip and both of them ran. 
+  
+  They found themselves in the woods away from the club.  
    
  
   
