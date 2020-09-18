@@ -1,4 +1,5 @@
 The Masqueraded Truth
+  
   Lilth couldn't remember much. She lay on her bed, watching the servents find her a perfect dress whilst thinking long and hard. Her life has never been the fantasies she have ever known. *I never knew all these fantasies would get me depressed*, she thought. But the party is an hour away. She had to find out before then.
   "Lilth! The limousine's here." 
   
@@ -23,7 +24,10 @@ The Masqueraded Truth
   "I'll go with you."
   Zion eased his grip and both of them ran. 
   
-  They found themselves in the woods away from the club.  
+  They found themselves in the woods away from the club. There was a flash of light, followed by another, another and another. After many consecutive flashes, all was finally calm and the world around Lilth faded into nothing.
+  
+  "Ugh, what just happened?" Lilth asked.
+  Zion woke up beside her.
    
  
   
