@@ -32,7 +32,7 @@ The Masqueraded Truth
   "Oh... we're in a forest." Lilth scanned the area. 
   "Hey Zion, isn't this a lovely pla-" 
   Zion woke up right beside her at that moment. 
-  "Lilth Wilson, there's no time to waste! I need you to recall your memories!" He towered over Lilth, gripping her arm. His pale blue eyes met Lilth's.
+  "Lilth Wilson, there's no time to waste! I need you to recall your memories!" He towered over Lilth, gripping her arm. His black, demonic eyes met Lilth's.
   Lilth thought long and hard as Zion continued to give her a cold, threatening stare. Then, visions came into her mind, the bloodiest thing she had ever seen. There seemed to be a war.
   "N-no!" Cried Lilth, as if she was met with reality. 
   
@@ -53,7 +53,7 @@ The Masqueraded Truth
   "Why do you care, b_tch?"
   "Oh, you called me a b_tch? HA, yea that's clever, I'm a B_TCH! HAHAHAHAHAHA..."
   
-  "Just LEAVE HER ALONE!" A slender boy stepped foot into Lilth's bedroom. Before anyone could react, icicles grew from the ceiling, wrapping around the bully's neck, arms and legs. 
+  "Just LEAVE HER ALONE!" A slender boy stepped foot into Lilth's bedroom. Before anyone could react, thorns grew from the ceiling, wrapping around the bully's neck, arms and legs. 
   "AAAAAAAAAAAAUGHHHHH!!!!!!" She screamed at the top of her lungs, while Lilth watched in amusement as the suffocating girl's face turned purple, then red, then white.
   "Don't worry about Siera," Zion came in and put his arm around Lilth's shoulders.
   "She's really a pain in the a**," he lamented. 
@@ -89,9 +89,60 @@ The Masqueraded Truth
   "I, uh-"
   
   "YEAIFEOIEAHOIEAOGJHIOAJGIOARHOIJOIJOIJ KING ADIONA!"
+  A high-pitched squeal from another end of the hall resonated around the hall. 
+  "King Adiona. KING ADIONA!" 
+  "What now, Georgia?" asked slightly annoyed king Adiona.
+  Georgia raced up to the throne, trying to catch her breath and replied, "Siera's creating a ruckus in the ground floor!"
   
-  Came the 
+  He let out a great big sigh. 
+  "Siera you said?"
+  "Yeah. Crashing through all the floors with the thorny-powers all of us have, screaming something that nobody understood."
+  "Has anyone tried to stop her?"
+  "Uh, we'd best not disturb her-"
+  "LILTH! Go resolve the problem."
+  
+  Lilth felt a little uneasy about king Adiona's unfold of emotions, yet she was much relieved that she could escape his initial question. Georgia led Lilth down the hallway to the corridors on on the ground floor. *Siera must have been really mad about what Zion's done to her earlier on,* she thought. *But it's a good thing that she actually has the ability to ressurect.*
+  
+  Lilth was met with a new Siera. She looked more like a monster now, destroying everything in her path. Her powers were stronger than ever.
+  "Siera, calm down!" cried Lilth, watching Siera continue to topple down lockers. Other than Georgia, there was no one else in sight.
+  "Georgia, can you help me on this?" she asked.
+  "But I have not learnt how to use my powers yet. I'm quite new."
+  Lilth groaned a little inside. *That's fine, I'll handle this myself*. Lilth closed her eyes, imagining the great forces of the thorns. After she opened her eyes again, she felt her body weight resist against the invisible thorns. With all her might, Lilth forced the thorns out of her arm, straightening them out slowly one by one.  
+  
+(Does this even make sense)
+  The thorns eventually reached their maximum length, and were in full control of Lilth. She manoeuvred them over to Siera's face in the middle of the huge thorns surrounding her, slapping it with great strength.
+  Siera resisted. She fell back a little on the first slap, but even after the second, third and forth slaps, she got back on her knees. 
+  "I hate you," she said in a low, creaky voice.
+  Then, thorns from Siera's end slid through Lilth's, coming straight at her.
+  Lilth did not flinch. She felt the thorns wrapping around her body, like how Zion did to Siera. *Stay calm*, she thought.
+  
+  (Harry potter vibes)
+  
+  Agony. Pain. All virtual feelings. War was just around the corner. "You will never defeat us," he said, "not with all the information I gained."
+  
+(At this point its kinda obvious Zion has been, is, and will use her against her during war)
+  
+  "Wait what.." Lilth opened her eyes. Actual colour came flooding back to her sight, no longer just red and black.
+  "Oh, hey there Zion," she said as that was the first thing she saw. Lilth felt herself almost too weak to move, the only thing she could was her mouth. 
+  "What happened to Siera, then?" she questioned.
+  "Nothing much. She's put in detention now, sucks for her," Zion laughed.
+  "Hold on, she did nothing wrong though," Lilth said.
+  "Oh yeah, Siera nearly strengled the life out of you, nothing wrong with that."
+  Lilth shook her head, "She wasn't the one who started it. It was me. Anyway, we always loose our temper sometimes."
+  "But Lilth, you don't *understand* how important your life is. You'll miss out so much have you died then."
+  "Guess you're right, Zion." Lilth shrugged.
+  She watched Zion's reassuring smile and went back for a short nap.
+  
+  After a few weeks in the Academy of the knights, Lilth's skills improved significantly, and she was one of the best in her level, in fact.
+  "It's a pity you don't have a second power though," king Adiona told her once, "but that's fine."
+  Siera has always been really cold around Lilth or anybody who supported her. Of course, Zion, who was from four levels higher than the two, protected Lilth from all the possible harm. She was grateful for Zion being there for her, and of course, their relationship grew closer.
+  
+(NOT a romantic relationship tho :P)
+  
+  All has been peaceful ever since the first war. In fact, nobody has talked about it ever since they remained victorious.
+   
   
   
-  (DONT EDIT MY STORY LET ME WRITE THE WHOLE THING) >:(=
+  (DONT EDIT MY STORY LET ME WRITE THE WHOLE THING!! edit: you know what edit if you like)
   (And also this story is in Lilth's perspective and the dude is an a** AND IM MAKING THIS AN EDGY STORY)
+  (Right so about these people with thorn-powers, so basically everyone around here has them, as well as some who have second powers. e.g. Zion's teleportation through time, Siera's ability to resurrect)  
