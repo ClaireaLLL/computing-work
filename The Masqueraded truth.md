@@ -118,7 +118,7 @@ The Masqueraded Truth
   
   (Harry potter vibes)
   
-  Agony. Pain. All virtual feelings. War was just around the corner. "You will never defeat us," he said, "not with all the information I gained."
+  Agony. Pain. All virtual feelings. War was just around the corner. "You will never defeat us," he said, "not with all the information I have gained."
   
 (At this point its kinda obvious Zion has been, is, and will use her against her during war)
   
@@ -139,7 +139,12 @@ The Masqueraded Truth
   
 (NOT a romantic relationship tho :P)
   
-  All has been peaceful ever since the first war. In fact, nobody has talked about it ever since they remained victorious.
+  All has been peaceful ever since the first war. In fact, nobody has talked about it ever since they remained victorious. 
+  
+  Lilth wanted to go out for some exploration in the forest. (You know the one she first landed in) She called a few closer friends: Alice and Kay with her. 
+  Actually, they weren't the closest.
+  Alice and Kay are twins, and always accepted Lilth in their team for group projects. Although Lilth was sort of an outcast, she was pleased that everyone was on her side. 
+  
    
   
   
