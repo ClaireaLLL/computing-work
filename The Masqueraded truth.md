@@ -144,8 +144,22 @@ The Masqueraded Truth
   Lilth wanted to go out for some exploration in the forest. (You know the one she first landed in) She called a few closer friends: Alice and Kay with her. 
   Actually, they weren't the closest.
   Alice and Kay are twins, and always accepted Lilth in their team for group projects. Although Lilth was sort of an outcast, she was pleased that everyone was on her side. 
+  "So we'll meet in the evening!" 
+  "Right, we'll be there."
   
-   
+   After that was settled, Lilth went to the upper floor to look for Zion for battling tips. At this point of time, she we already familiar with the Academy and knew every possible spot Zion might be in at each point of time. 
+  
+  Meanwhile, at king Adiona's throne (did i describe it correctly)
+  
+  "Zion, I have an important task for you."
+  "Sure."
+  "As a senior knight in this training school, it would be my pleasure to say you'll be in the first graduating batch, next year."
+  "Yeah, I know that..." Zion replied, waiting for him to get to the point.
+  "So being in charge of all school grounds and the community, I have realised you've missed out several training sessions." king Adiona said, his voice becoming huskier.
+  Zion sheepishly looked away. True that, but he had more important tasks to do.
+  "As a result," said king Adiona, "You will be unable to graduate, no matter how strong you are."
+  Zion gasped.
+  "However, we do have a chance for you to prove that you will be able to,"
   
   
   (DONT EDIT MY STORY LET ME WRITE THE WHOLE THING!! edit: you know what edit if you like)
