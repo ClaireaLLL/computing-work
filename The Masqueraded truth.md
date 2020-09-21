@@ -38,8 +38,8 @@ The Masqueraded Truth
   
   "What. Did you see. Just now?" Zion began shaking her violently, demanding for the answers. 
   *What's his problem?* Lilth started to question.
-  "I don't remember a thing... but what was that image in my head just now? Was that... death?"
-  "Good job Lilth, that's a good girl." Zion nodded and pulled Lilth into a tight embrace. "Good job, you've done well..." Zion's mellow voice trailed off as Lilth fell into his arms in a daze.
+  "I don't remember a thing... but what was that image in my head just now? Was that... ugh, I don't know."
+  Lilth could not remember. Exausted, she fell into Zion's arms in a daze, Zion catching her just on time.
   
   "AHHHHHHH where the heck am I?" Lilth sprang out of bed. 
   "AHHHHHHH this isn't my room..." 
@@ -71,9 +71,26 @@ The Masqueraded Truth
   "I'll wait here for you," Zion nodded. 
   Lilth took a deep breath. She looked down and stared at her leathered training attire, completed with a pre-tied scarf around her neck. She knew what was coming. 
   Performing a small curtsey, king Adiona gave a wide and cheery smile. To Lilth, it was... somewhat more genuine than Zion's. She liked it. 
-  "My saviour," king Adiona acknowledged the curtsey. 
   
+(Jesus christ)
   
+  "My saviour," king Adiona acknowledged the curtsey, "Welcome back."
+  "You remember me right?" he questioned, just to make sure.
+  "I do, king Adiona. Our victory was certainly a miracle." 
+  "Well you were clearly the miracle."
+  "Thank you, your highness," Lilth bowed with much dignity.
+  "Speaking about that, how was your short break after the battle?"
+  
+  Lilth hesitated. About the short break, she discovered that she had forgotten about her plans, and her unfinished business. Having such a normal life that bussied her so much from what was important, it was a risk to say that everything was smooth-sailing again.
+  
+  "Great. My break was great. I (fake giggles) did have a fruitful stay at my mother's. Just. Great. Yeah."
+  For some reason, king Adiona did not seem to buy it. He titled his head a little, and stared at Lilth, not satisfied with her answer.
+  "Please elaborate. After all, the break was a gift for all the commitment you've put in."
+  "I, uh-"
+  
+  "YEAIFEOIEAHOIEAOGJHIOAJGIOARHOIJOIJOIJ KING ADIONA!"
+  
+  Came the 
   
   
   (DONT EDIT MY STORY LET ME WRITE THE WHOLE THING) >:(=
